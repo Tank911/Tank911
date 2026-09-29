@@ -1,1 +1,1 @@
-[![nYlQOtR.th.jpg](https://iili.io/nYlQOtR.th.jpg)](https://freeimage.host/i/nYlQOtR)
+![tak-berjudul4937.avif](https://user38310.na.imgto.link/public/20260929/tak-berjudul4937.avif)
