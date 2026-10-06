@@ -1,1 +1,1 @@
-![tak-berjudul4937.avif](https://user38310.na.imgto.link/public/20260929/tak-berjudul4937.avif)
+![tak-berjudul4937.jpg](https://raw.githubusercontent.com/Tank911/Tank911/refs/heads/main/Tak%20berjudul4937.jpg)
